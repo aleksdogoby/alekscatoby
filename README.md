@@ -1,6 +1,6 @@
 CUDDLES AND INT IS ALWAYS WELCOME!!! W2I if im in menu or busy
 
-all info + discord in carrd, looking for yapper friends for a friend group
+all info about me in carrd
 
 ![z9](https://github.com/user-attachments/assets/1f3e96f5-ecc2-46a6-82d8-7ee317f2ec1d)
 
