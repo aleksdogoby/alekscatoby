@@ -1,5 +1,6 @@
 
-![m16 spin](https://github.com/user-attachments/assets/eace5890-8e7a-4fc9-83a5-a4f82e5234e4)
+![m<img width="400" height="400" alt="tumblr_4b6ae26454a53f83c8e243074e7f450d_38ea7ba4_400" src="https://github.com/user-attachments/assets/682007f4-7676-4dbd-a3e1-d41f0e29bc75" />
+16 spin](https://github.com/user-attachments/assets/eace5890-8e7a-4fc9-83a5-a4f82e5234e4)
 
 
 ![freak blinkie](https://github.com/user-attachments/assets/bf38aacc-c790-4858-aca5-b8479599f112)
